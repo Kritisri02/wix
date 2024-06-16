@@ -1,0 +1,4 @@
+Please note that we never ask you for Social Security Numbers or Passwords when making a donation. Should you receive an email or letter asking you for such information, you are requested to inform us at info@TheAryaFoundation.org .
+
+Credit Cards
+Credit card information is required to ensure your credit card is securely and properly processed. This information is solely used for the processing of the credit card and is not stored on our system. If you feel a charge has been made against your credit card inappropriately, please contact us at info@TheAryaFoundation.org, and we will endeavor to work with you to obtain a refund of the donation.
